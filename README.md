@@ -1,1 +1,1 @@
-# -Studyrise-
+# -StudyRise-
